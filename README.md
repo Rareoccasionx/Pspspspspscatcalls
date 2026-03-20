@@ -1,4 +1,4 @@
-![Alt text](• cr_ krowbots _#Boothill _ #art ⌑_подписывайтесь на тгк - @ amphroreus.jpeg)
+![Alt text](image_source)
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
